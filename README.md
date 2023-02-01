@@ -1,1 +1,1 @@
-# Simplefolio ⚡️ Donny Portfolio
+# ⚡️ Donny Portfolio
